@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Top-Giezer
+- 👀 I’m interested in Fortnite and earning money
+- 🌱 I’m currently learning html & css
+- 📫 How to reach me 1edgarharrison@gmail.com
